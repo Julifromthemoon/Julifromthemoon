@@ -1,5 +1,15 @@
 ### Hi there 👋
 
+
+
+- Trying to become a Web Developer one line at a time...👩‍🎓 🧠 👩‍💻
+
+- "Laugh and the world laughs with you, snore and you sleep alone." -Anthony Burgess
+
+ 🕊  ❤ 🌱  🧘‍♀️
+
+
+
 <!--
 **Julifromthemoon/Julifromthemoon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
