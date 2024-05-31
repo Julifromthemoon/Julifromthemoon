@@ -2,7 +2,7 @@
 
 
 
-- Trying to become a Web Developer one line at a time...👩‍🎓 🧠 👩‍💻
+- I'm Julia and i'm currently learning to become a Web Developer one line at a time...👩‍🎓 🧠 👩‍💻
 
 - "Laugh and the world laughs with you, snore and you sleep alone." -Anthony Burgess
 
